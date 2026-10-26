@@ -1,2 +1,3 @@
 # CPSC222CAC
-操你
+
+Eric is evil and NOT British
